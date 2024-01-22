@@ -1,5 +1,5 @@
 # SOCIAL OPLESK
-### 🏴‍☠️ HACKS ------//// MIGUEL CARRERA /////-------
+### 🏴‍☠️ ---- TEAM #7 ------//// MIGUEL CARRERA /////-------
 
 |Hacks | Details | 
 |----------|---------|
